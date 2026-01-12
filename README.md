@@ -1,5 +1,5 @@
 # 💫 About Me:
-I've worshipped feet of my cousin Mehwish and licked soles of my other cousin Maiza.<br>But I loved sucking toes of Maiza.
+Hi! I’m Rana — a curious mind who loves learning, solving problems, and exploring new ideas. I enjoy researching, sharing knowledge, and helping others grow… and secretly, I have a soft spot for the s
 
 
 # 💻 Tech Stack:
